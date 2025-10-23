@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **alimubashir23312331@gmail.com**
 
-- 📄 Know about my experience [My Resume](https://i.postimg.cc/FsDHqK1G/My-Resume-Copy.png)
+- 📄 Know about my experience [My Resume]([https://i.postimg.cc/FsDHqK1G/My-Resume-Copy.png](https://i.postimg.cc/L84PwbVT/My-Resume.png))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
